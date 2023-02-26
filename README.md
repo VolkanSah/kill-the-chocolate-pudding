@@ -14,5 +14,4 @@
 ### Remember
 these are just some silly ways to enjoy your dessert and release some stress after a long day of work. Don't take them too seriously and enjoy your delicious chocolate pudding!
 
-
-greatings by Volkan Sah the chocolate puddingkiller
+### Greatings from Volkan Sah the chocolate puddingkiller!
