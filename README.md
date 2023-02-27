@@ -1,5 +1,6 @@
 
 # Five ways to "kill" your chocolate pudding after a hard working day:
+We will write the game rules, please wait.
 
 - Hold a mock trial and sentence your chocolate pudding to death by spoonful. Accuse it of being too delicious and for distracting you from work.
 
