@@ -1,7 +1,8 @@
 
 # Five ways to "kill" your chocolate pudding after a hard working day:
-We will write the game rules, please wait.
+This is a game we play to not get even more stupid and to distract ourselves from work. The rules of the game are coming soon. The game is currently being played in German, English, Turkish and French.
 
+ ## Five ways to "kill" your chocolate pudding after a hard working day:
 - Hold a mock trial and sentence your chocolate pudding to death by spoonful. Accuse it of being too delicious and for distracting you from work.
 
 - Pretend to stage an elaborate bank heist with your chocolate pudding as the unsuspecting victim. Put on a ski mask and demand that the pudding "hand over the goods" before devouring it.
@@ -15,4 +16,4 @@ We will write the game rules, please wait.
 ### Remember
 these are just some silly ways to enjoy your dessert and release some stress after a long day of work. Don't take them too seriously and enjoy your delicious chocolate pudding!
 
-### Greatings from Volkan Sah the chocolate-pudding-killer!
+### Greatings from Volkan Sah & Oliver H.  the chocolate-pudding-killers!
