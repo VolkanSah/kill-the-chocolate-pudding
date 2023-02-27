@@ -1,5 +1,9 @@
 
 # Five ways to "kill" your chocolate pudding after a hard working day:
+![This is an image](https://github.com/VolkanSah/kill-the-chocolate-pudding/blob/main/1.jpg)
+
+
+
 This is a game we play to not get even more stupid and to distract ourselves from work. The rules of the game are coming soon. The game is currently being played in German, English, Turkish and French.
 
  ## Five ways to "kill" your chocolate pudding after a hard working day:
