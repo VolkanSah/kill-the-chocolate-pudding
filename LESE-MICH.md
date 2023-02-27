@@ -1,4 +1,7 @@
 # Fünf Wege, um deinen Schokoladenpudding nach einem harten Arbeitstag "umzubringen":
+Diese ist ein Spiel, was wir spielen, um nicht noch blöder zu werden und uns mal von der Arbeit abzulenken. Die Spielregeln kommen in Kürze. Aktuell wird das Spiel in Deutsch, Englisch, Türkisch und Französisch gespielt.
+
+
 - Halte einen Scheinprozess ab und verurteile deinen Schokoladenpudding zum Tod durch Löffel. Beschuldige ihn, zu lecker zu sein und dich von der Arbeit abzulenken.
 - Gib vor, einen aufwendigen Bankraub mit deinem Schokoladenpudding als ahnungslosem Opfer inszenieren zu wollen. Setze eine Skimaske auf und fordere den Pudding auf, "die Ware rauszurücken", bevor du ihn verschlingst.
 - Kleide deinen Schokoladenpudding wie eine Voodoo-Puppe und "stich" ihn wiederholt mit deinem Löffel. Schiebe die Schuld für all deinen Arbeitsstress auf den Pudding und genieße den Moment der süßen Rache.
