@@ -1,6 +1,7 @@
 
 # Text Game: Five ways to "kill" your chocolate pudding after a hard working day:
 ![This is an image](https://github.com/VolkanSah/kill-the-chocolate-pudding/blob/main/1.jpg)
+image use filters, a real pudding looks not like this :)
 
 
 
